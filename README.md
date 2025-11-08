@@ -36,6 +36,8 @@ https://draft.blogger.com/u/1/blog/post/edit/4965673694295235597/678283414229179
 https://draft.blogger.com/u/1/blog/post/edit/4965673694295235597/8002398902592879311
 https://draft.blogger.com/u/1/blog/post/edit/4965673694295235597/2013100396754931997
 
+[LinkedIn الخاص بي](https://www.linkedin.com/in/samer-architekt)
+[Blogger](https://samerplanung.blogspot.com)
 
 
 👉 Für eine kostenlose Erstberatung schreiben Sie mir direkt per E-Mail.
