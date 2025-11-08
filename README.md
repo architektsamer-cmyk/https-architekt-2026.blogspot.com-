@@ -21,7 +21,7 @@ Herunterladen https://www.canva.com/design/DAG0ZDy2H6k/oaKC-k7L04JmP2obp3sP-Q/vi
 
 https://draft.blogger.com/u/1/blog/post/edit/4965673694295235597/224462257122881847 https://draft.blogger.com/u/1/blog/post/edit/4965673694295235597/224462257122881847 https://draft.blogger.com/u/1/blog/post/edit/4965673694295235597/224462257122881847 https://draft.blogger.com/u/1/blog/post/edit/4965673694295235597/224462257122881847
 
-## 🏗️ Projektarten
+## 🏗️ Projekte
 sobald ich die Berufshaftpflichtversicherung abgeschlossen habe. Daher gilt mein Angebot unter dieser
 - Klassisches Wohn- und Geschäftshaus
 - Smart-Ökohaus (Effizienzhaus-40)
