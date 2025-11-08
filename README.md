@@ -1,15 +1,25 @@
 # Architekt Samer 
-Willkommen auf meiner internationalen Architektenplattform.  
-Ich bin Samer, ein erfahrener Architekt mit über 20 Jahren Berufserfahrung in Deutschland.  
-Mein Fokus liegt auf klassischen Gebäuden, nachhaltigen Smarthäusern und energieeffizientem Bauen. 
-über mich
-Ich bin Architekt und freue mich auf die Zusammenarbeit mit Ihnen. Mit der Arbeit kann ich beginnen, 
-Bedingung.
+Architekt in Kiel
 
-## 🌍 Tätigkeitsbereiche
-- Kiel, Hamburg, Berlin
-- Projekte mit Autodesk Revit
-- Zusammenarbeit mit zertifizierten Energieberatern
+Ja, ich bin ein zertifizierter Architekt in Kiel, Deutschland, und habe über 20 Jahre Erfahrung im .Bauwesen, einschließlich energieeffizienter Häuser (Effizienzhaus-40)
+
+"Der Arbeitsbeginn erfolgt nicht ab dem Datum der Angebotsabgabe, sondern erst ab dem Erhalt der Berufshaftpflichtversicherung Ich biete Ihnen die notwendige Beratung und Unterstützung für Ihr Projekt an
+
+Art der Unterstützung nach Erhalt der Berufshaftpflichtversicherung
+
+Bauanträge können gestellt werden, Nutzungsänderungen oder Anpassungen am Gebäude vorgenommen werden, neue Gebäudeteile hinzugefügt werden, Pläne mit den Bauunternehmern .überwacht werden, und die schlüsselfertige Übergabe ist verfügbar
+
+Ich beginne ab heute mit der Bearbeitung Ihres Antrags gemäß HOAI.Bauschale Beginnen Sie heute mit einer kostenlosen Erstberatung, um Ihr Projekt zu besprechen, erste Planungsansätze zu entwickeln und eine erste Kostenschätzung zu erhalten – alles unverbindlich.
+
+E-Mail
+
+Um einen Termin zu vereinbaren, kontaktieren Sie mich bitte per E-Mail
+
+Sie können über diesen Link auf die Datei zugreifen und sie herunterladen
+
+Herunterladen https://www.canva.com/design/DAG0ZDy2H6k/oaKC-k7L04JmP2obp3sP-Q/view?utm_content=DAG0ZDy2H6k&utm_campaign=designshare&utm_medium=link2&utm_source=uniquelinks&utlId=hc139d97033.
+
+https://draft.blogger.com/u/1/blog/post/edit/4965673694295235597/224462257122881847 https://draft.blogger.com/u/1/blog/post/edit/4965673694295235597/224462257122881847 https://draft.blogger.com/u/1/blog/post/edit/4965673694295235597/224462257122881847 https://draft.blogger.com/u/1/blog/post/edit/4965673694295235597/224462257122881847
 
 ## 🏗️ Projektarten
 sobald ich die Berufshaftpflichtversicherung abgeschlossen habe. Daher gilt mein Angebot unter dieser
@@ -26,13 +36,10 @@ https://draft.blogger.com/u/1/blog/post/edit/4965673694295235597/678283414229179
 https://draft.blogger.com/u/1/blog/post/edit/4965673694295235597/8002398902592879311
 https://draft.blogger.com/u/1/blog/post/edit/4965673694295235597/2013100396754931997
 
-## 📬 Kontakt & Ablauf
-1. Kunde wählt das Design
-2. Erste Kontaktaufnahme per E-Mail
-3. Telefonisches Gespräch zur Projektbesprechung
-4. Projektstart nach Versicherungsfreigabe
+
 
 👉 Für eine kostenlose Erstberatung schreiben Sie mir direkt per E-Mail.
+planung.2025.ar@gmail.com
 planung.2025.ar@gmail.com
 # internationale-architektenplattform
 # https-architekt-2026.blogspot.com-
