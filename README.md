@@ -1,0 +1,1 @@
+# https-architekt-2026.blogspot.com-
