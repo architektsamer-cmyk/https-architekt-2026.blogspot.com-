@@ -49,3 +49,5 @@ planung.2025.ar@gmail.com
 planung.2025.ar@gmail.com
 # internationale-architektenplattform
 # https-architekt-2026.blogspot.com-
+‏Architekt samer.2025 (@architektsamer.2023)
+
