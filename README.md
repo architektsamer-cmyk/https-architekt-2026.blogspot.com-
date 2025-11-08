@@ -43,6 +43,7 @@ samer-abbas-78624b388
 https://architekt-2026.blogspot.com/
 
 
+
 👉 Für eine kostenlose Erstberatung schreiben Sie mir direkt per E-Mail.
 planung.2025.ar@gmail.com
 planung.2025.ar@gmail.com
